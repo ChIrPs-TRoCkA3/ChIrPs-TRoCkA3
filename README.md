@@ -7,12 +7,22 @@
 </p>
 
 <p align="center">
+  <a href="https://trockayay.atabook.org">
+    <img src="https://img.shields.io/badge/MY_ATABOOK-008EAA?style=for-the-badge" width="300" alt="My Atabook">
+  </a>
+</p>
+
+
+<p align="center">
   <img src="https://github.com/ChIrPs-TRoCkA3/ChIrPs-TRoCkA3/blob/main/Thicker%20Lines%20Adjustment%20(8)%20(1).png?raw=true" width="450">
 </p>
 
 <div align="center">
 HI! my name is Atlas but you can call me whatever you like, I like nicknames (If they're good obviously). My pronouns are He/Him :)) I am semi AFK, Mostly because I do my stuff while being on ponytown, but feel totally free to interact whenever you want (I'd love u to) bc i like making new friendz. But I don't interact with mean people, facist, nazi, homophobes, transphobes etc etc. LEAVE IF YOU ARE ONEEE. i'd also love you don't copy me skins, i put A LOT of effort on them. Thanks!
 </div>
+
+
+
 
 
 <p align="center">
